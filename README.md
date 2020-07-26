@@ -1,9 +1,7 @@
 welcome to my world
 
-hero 
-salman
-katrina 
-deepika
+chole bhatoore 
+
 
 
 thank you:)
