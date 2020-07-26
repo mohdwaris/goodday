@@ -1,9 +1,7 @@
 welcome to my world
 
-hero 
-salman
-katrina 
-deepika
+chole bhatoore 
+boht hard  boht hard.. bhai log.
 
 
 thank you:)
