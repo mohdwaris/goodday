@@ -1,7 +1,8 @@
-welcome to my world
-
-chole bhatoore 
-boht hard  boht hard.. bhai log.
-
-
-thank you:)
+alo 
+peda 
+mihai 
+haldi 
+rajma chaval.
+ 
+ 
+ thanks you:)
